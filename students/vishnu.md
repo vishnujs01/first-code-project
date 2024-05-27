@@ -1,4 +1,4 @@
 # Vishnu Mohan Goda
 
 - email: vishnumohan.work@gmail.com
-- Location: Hyderabad
+- Location: Hyderabad, TG, 500049
